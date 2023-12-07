@@ -1,0 +1,1 @@
+# STKI-Minggu-10
